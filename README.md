@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>    👋 Hi, I’m Abdollatif<br>    🌱 I’m currently learning software engineer skills<br>    📫 How to reach me Abdollatifnajafizadeh@gmail.com | t.me/najafizadeh_al |<br>    🧐 I’m looking for help with any software<br><br>
+<br>    👋 Hi, I’m Abdollatif<br>    🌱 I’m currently learning software engineer skills<br>    📫 How to reach me A.latifnajafizadeh@gmail.com | t.me/najafizadeh_al |<br>    🧐 I’m looking for help with any software<br><br>
 
 
 ## 🌐 Socials:
