@@ -1,4 +1,3 @@
-# 💫 About Me:
 <br>    👋 Hi, I’m Abdollatif<br> 
 
 # 💻 Tech Stack:
